@@ -1,1 +1,1 @@
-Personal Website for Girinath of Patna.
+Personal Website for Girinath of IIT Kharagpur.
