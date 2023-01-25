@@ -1,1 +1,1 @@
-Personal Website for Girinath of IIT Kharagpur.
+Personal Website for Girinath of IIT Kharagpur, India.
